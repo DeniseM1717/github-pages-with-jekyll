@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Hi there, I'm glad you are here. My name is Denise Martinez. I might have just stumbled across where I will begin my portfolio. :)
